@@ -16,7 +16,8 @@ I believe this internship will help me understand how legal mechanisms protect i
 
 ## Education
 - **St Dominic's Higher Secondary School, Kanjirappally** (2022)  
-- **St Anthony's High School, Mundakkyam** (2020)  
+- **St Anthony's High School, Mundakkyam** (2020)
+- **B.A. LL.B. (Hons.) – SASTRA Deemed University, School of Law** (Currently Pursuing)  
 
 ---
 
@@ -25,7 +26,16 @@ I believe this internship will help me understand how legal mechanisms protect i
   - Observed trials, assisted in legal research, drafting, and case preparation.  
 
 - **Jan–Feb 2024** – *Intern, Adv. Muhammed Haris, Munsiff & Magistrate Court, Kanjirappally*  
-  - Studied lower court procedures, documentation, and case filing.  
+  - Studied lower court procedures, documentation, and case filing.
+  - **July 2025** – *Intern, State Human Rights Commission, Tamil Nadu*  
+  - Engaged in research and case study analysis.  
+  - Assisted in human rights complaints documentation and awareness programs.
+ 
+---
+ 
+## Research Paper
+- **"Evolving Legal Perspective of Cohabitation: Navigating Rights and Regulations"**  
+  - Explores the legal frameworks, challenges, and judicial interpretations surrounding cohabitation.  
 
 ---
 
